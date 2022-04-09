@@ -73,7 +73,7 @@ Jefferson Paixão | [Linkedin](https://www.linkedin.com/in/jeffersondasilvapaixa
 
 Lorenna Caiaffa | [Linkedin](https://www.linkedin.com/in/lorenna-caiaffa-31a6b022a/)
 
-Luana Pimentel | [Linkedin]()
+Luana Pimentel | [Linkedin](https://www.linkedin.com/in/luana-pimentel-a144a922b)
 
 Luís Felipe Winther | [Linkedin](https://www.linkedin.com/in/luisfilipewintherborges/)
 
